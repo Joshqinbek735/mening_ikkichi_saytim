@@ -1,0 +1,1 @@
+# mening_ikkichi_saytim
